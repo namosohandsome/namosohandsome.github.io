@@ -1,1 +1,0 @@
-# namosohandsome.github.io
